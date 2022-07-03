@@ -1,0 +1,2 @@
+# MIDAS926GB923
+Midas926.GB923 Miner Manual
